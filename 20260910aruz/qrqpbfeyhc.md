@@ -14,23 +14,23 @@
 
 ## 相关阅读
 
-- [相关笔记](https://github.com/uo8lrun64a/pregnancy-care-hub/blob/main/20260910ilvq/cekfewbkwl.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/baby-care-journal/blob/main/20260910mqdw/nfpaehzait.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/pregnancy-care-hub/blob/main/20260910xfbk/atyendftoq.md)
-- [相关笔记](https://github.com/uo8lrun64a/family-health-notes/blob/main/20260910biha/zppzxqpqai.md)
-- [相关笔记](https://github.com/uo8lrun64a/family-health-notes/blob/main/20260910biha/rjfdsdwhvu.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/baby-care-journal/blob/main/20260910mqdw/xbazjxfdvo.md)
+- [美国第三代试管婴儿5步全流程攻略：高成功率背后的秘诀](https://github.com/uo8lrun64a/pregnancy-care-hub/blob/main/20260910ilvq/cekfewbkwl.md)
+- [赴美第三代试管婴儿避坑指南：5个关键环节千万别踩雷](https://github.com/sa1ec5y0bz/baby-care-journal/blob/main/20260910mqdw/nfpaehzait.md)
+- [美国第三代试管婴儿7大必看攻略：高龄夫妻备孕的福音](https://github.com/sa1ec5y0bz/pregnancy-care-hub/blob/main/20260910xfbk/atyendftoq.md)
+- [美国第三代试管婴儿终极攻略：流程、费用、成功率一网打尽](https://github.com/uo8lrun64a/family-health-notes/blob/main/20260910biha/zppzxqpqai.md)
+- [赴美做第三代试管婴儿必看：5大避坑秘诀+高成功率解析](https://github.com/uo8lrun64a/family-health-notes/blob/main/20260910biha/rjfdsdwhvu.md)
+- [美国第三代试管婴儿完全指南：5步流程＋避坑秘诀，帮你安全赴美生子](https://github.com/sa1ec5y0bz/baby-care-journal/blob/main/20260910mqdw/xbazjxfdvo.md)
 
 ## 推荐站点
 
-- [点击查看](https://www.danqiushen.com/75.html)
-- [点击查看](https://www.danqiushen.com/97.html)
-- [点击查看](https://www.danqiushen.com/117.html)
-- [详情点击](https://www.danqiushen.com/157.html)
-- [查看详情](https://www.wuzhenzhi.cn/57.html)
-- [更多内容](https://www.wuzhenzhi.cn/33.html)
-- [更多内容](https://www.wuzhenzhi.cn/77.html)
-- [相关资讯](https://www.wuzhenzhi.cn/115.html)
-- [推荐阅读](https://www.wuzhenzhi.cn/87.html)
+- [长沙哪里可以做第三代试管婴儿？PGT技术适应症与非医疗性别选择的合法性说明](https://www.wuzhenzhi.cn/108.html)
+- [三代试管可以解决糖尿病吗？2型糖尿病遗传风险科普解读](https://www.wuzhenzhi.cn/109.html)
+- [衡阳试管婴儿医院——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/11.html)
+- [有做二代试管生男孩的吗？解析二代试管与胎儿性别那些事](https://www.wuzhenzhi.cn/110.html)
+- [国内、泰国、美国第三代试管婴儿怎么选？三代试管目的地全面对比](https://www.wuzhenzhi.cn/111.html)
+- [第三代试管包生儿子有影响吗？解析PGT技术与性别选择真相](https://www.wuzhenzhi.cn/112.html)
+- [临沂能做三代试管吗？最新消息与申请条件全面解读](https://www.wuzhenzhi.cn/113.html)
+- [囊胚性别鉴定要多久出结果？PGT检测流程与时间周期全解析](https://www.wuzhenzhi.cn/114.html)
+- [三代试管龙凤胎好吗？PGT技术能实现龙凤胎吗一文说清](https://www.wuzhenzhi.cn/116.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
