@@ -290,14 +290,19 @@ A：技术上可行，但跨境液氮运输单次3,500-4,000美元，且国内�
 
 ## 推荐站点
 
-- [南京鼓楼医院供卵等多久——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/10.html)
-- [清宫后二次移植成功率高吗会怀孕吗？移植生化后二次成功率详解](https://www.wuzhenzhi.cn/100.html)
-- [南京供卵医院成功率多少？南京省人医试管婴儿成功率解读与影响因素科普](https://www.wuzhenzhi.cn/101.html)
-- [郴州可以做三代试管吗？最新消息与长沙三代试管婴儿黑市风险科普](https://www.wuzhenzhi.cn/102.html)
-- [江西供卵三代试管包成功是真的吗？南昌医院三代试管资质全解读](https://www.wuzhenzhi.cn/103.html)
-- [移植囊胚能吃苹果吗好吗？囊胚移植可以吃火龙果吗有影响吗](https://www.wuzhenzhi.cn/104.html)
-- [吉林省人民医院试管婴儿成功率高吗？长春吉大二院试管成功率解读](https://www.wuzhenzhi.cn/105.html)
-- [国内试管婴儿案例最新消息与进展：政策、技术与真实情况解读](https://www.wuzhenzhi.cn/106.html)
-- [移植后要注意些什么才能提高成功率呢？视频讲解全方位指南](https://www.wuzhenzhi.cn/107.html)
+- [['https://www.cd-hssf.com/222120904196.html', '专业供卵网：什么是胚胎碎片']](https://www.cd-hssf.com/222120904196.html)
+- [['https://www.dygsdyw.com/122690724101.html', '试管后孕酮低需要保胎吗']](https://www.dygsdyw.com/122690724101.html)
+- [['https://www.fmngst.com/1497061169216.html', '合肥有供卵吗,合肥借卵第三代试管婴儿价格多少？']](https://www.fmngst.com/1497061169216.html)
+- [['https://www.skiguo.cn/20250927-283.html', '最好试管代怀-做试管婴儿有年纪要求吗？绝经了能够做试管婴儿吗']](https://www.skiguo.cn/20250927-283.html)
+- [['https://www.jszgyh.com/208930138183.html', None]](https://www.jszgyh.com/208930138183.html)
+- [['https://www.sandwnot.com/218200408396.html', '私立助孕医院-沈阳三代试管婴儿医院：试管婴儿有哪些重要环节？']](https://www.sandwnot.com/218200408396.html)
+- [['https://www.gyzhixiao.cn/240.html', '子宫憩室宫腔镜手术什么时间合适做']](https://www.gyzhixiao.cn/240.html)
+- [['https://www.btwtjx.cn/wuhangongluanshiguan/20251014/6189.html', '试管婴儿的知名医生']](https://www.btwtjx.cn/wuhangongluanshiguan/20251014/6189.html)
+- [['https://www.hs52.cc/sandaigongluandaihuai/75.html', '着床不稳的征兆']](https://www.hs52.cc/sandaigongluandaihuai/75.html)
+- [['https://www.esc45.com/131.html', '代生价格-卵巢囊肿吃什么药能消']](https://www.esc45.com/131.html)
+- [['https://www.xmxinyhwzhs.cn/29609004942022.html', '试管代生收费-9岁儿童卵巢大小标准是多少']](https://www.xmxinyhwzhs.cn/29609004942022.html)
+- [['https://www.luruihang.com/2055.html', '青岛供卵试管价格_严选代孕母亲,2026 郑州试管助孕生混血宝宝费用参考，2026']](https://www.luruihang.com/2055.html)
+- [['https://www.cxit.com.cn/daiyunxinwen/14172.html', '长沙哪里代生孩子,长沙中信湘雅做供卵试管价格多少？长沙湘雅供卵中心电话']](https://www.cxit.com.cn/daiyunxinwen/14172.html)
+- [['https://www.cddyunw.com/124965344554.html', '杭州供卵是几代试管-杭州供卵的成功率,2026年杭州第三代试管费用如何走医保？']](https://www.cddyunw.com/124965344554.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
