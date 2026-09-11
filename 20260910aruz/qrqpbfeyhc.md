@@ -23,14 +23,20 @@
 
 ## 推荐站点
 
-- [长沙哪里可以做第三代试管婴儿？PGT技术适应症与非医疗性别选择的合法性说明](https://www.wuzhenzhi.cn/108.html)
-- [三代试管可以解决糖尿病吗？2型糖尿病遗传风险科普解读](https://www.wuzhenzhi.cn/109.html)
-- [衡阳试管婴儿医院——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/11.html)
-- [有做二代试管生男孩的吗？解析二代试管与胎儿性别那些事](https://www.wuzhenzhi.cn/110.html)
-- [国内、泰国、美国第三代试管婴儿怎么选？三代试管目的地全面对比](https://www.wuzhenzhi.cn/111.html)
-- [第三代试管包生儿子有影响吗？解析PGT技术与性别选择真相](https://www.wuzhenzhi.cn/112.html)
-- [临沂能做三代试管吗？最新消息与申请条件全面解读](https://www.wuzhenzhi.cn/113.html)
-- [囊胚性别鉴定要多久出结果？PGT检测流程与时间周期全解析](https://www.wuzhenzhi.cn/114.html)
-- [三代试管龙凤胎好吗？PGT技术能实现龙凤胎吗一文说清](https://www.wuzhenzhi.cn/116.html)
+- [['https://www.cecigou.cn/2020daiyunshengzi/20250928/15122.html', 'NT单子下面写估计染色体异常']](https://www.cecigou.cn/2020daiyunshengzi/20250928/15122.html)
+- [['https://www.mimi567.com/365.html', '试管代生女孩:鲜胚移植怎么计算预产期？移植鲜胚当天算不算一天？']](https://www.mimi567.com/365.html)
+- [['https://www.esc45.com/176.html', '试管移植后如何保胎？']](https://www.esc45.com/176.html)
+- [['https://www.btwtjx.cn/wuhangongluanshiguanqun/20250307/6230.html', '代孕公司哪一家好,子宫内膜6.3可以试管吗(内膜厚度6.8可以做试管婴儿吗)']](https://www.btwtjx.cn/wuhangongluanshiguanqun/20250307/6230.html)
+- [['https://www.sandwnot.com/104782313433.html', None]](https://www.sandwnot.com/104782313433.html)
+- [['https://www.monpun.com/6363002241390.html', '坚持求子路终获新生：试管婴儿助孕流程全解析']](https://www.monpun.com/6363002241390.html)
+- [['https://www.gyzhixiao.cn/28.html', '卵巢衰老和内膜薄做几代试管好']](https://www.gyzhixiao.cn/28.html)
+- [['https://www.cddyunw.com/419091239476.html', '详解杭州富阳区妇幼保健院供精人工授精费用及流程']](https://www.cddyunw.com/419091239476.html)
+- [['https://www.xnnpbhdz.cn/39959704307878.html', '徐州2026借卵试管**要多少钱附最新试管*清单明细出炉,供卵自怀官网']](https://www.xnnpbhdz.cn/39959704307878.html)
+- [['https://www.3899234.com/20250927-164.html', '供卵包男孩&东莞东华医院试管婴儿成功率贵阳300医院试管婴儿成功率？']](https://www.3899234.com/20250927-164.html)
+- [['https://www.sdxxy.cn/20260829-477.html', '山大生殖捐卵标准是什么？捐赠条件与配型要求详细科普']](https://www.sdxxy.cn/20260829-477.html)
+- [['https://www.eduency.com/124641003177.html', '代生中介机构-卵泡刺激素和促黄体生成素的比例(促黄体生成素卵泡刺激素孕酮偏低怎么办？)']](https://www.eduency.com/124641003177.html)
+- [['https://www.xmxinyhwzhs.cn/23379620834290.html', '无精症做包代生孩子多少钱多久会成功？无精症做包代生孩子多少钱成功率']](https://www.xmxinyhwzhs.cn/23379620834290.html)
+- [['https://www.hghbjm.com/209.html', '代怀试管-南昌试管私立机构Top10排行']](https://www.hghbjm.com/209.html)
+- [['https://www.jszgyh.com/200404070052.html', '2026年在安徽省做试管生宝宝的大概费用明细,答案看这里']](https://www.jszgyh.com/200404070052.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
